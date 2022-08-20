@@ -1,1 +1,2 @@
 ### 反动派是世界上最害怕言论自由的一个集团。他们害怕人民翻身，害怕人民认识大时代的真面貌，更害怕他们自己的丑恶暴露在人民大众的面前。所以他们用种种卑劣无耻，残暴不仁的手段，蒙蔽人民的眼睛，塞闭人民的耳朵，封锁人民的嘴巴。
+### The reactionaries are the group in the world most afraid of free speech. They fear that their own ugliness will be exposed to the public, the people will realize the true face of era, and fear more the people will stand up and be master of their own fate. So they used a variety of despicable, outrageous and cruel means to blind the people's eyes, block their ears and shut their mouths.
